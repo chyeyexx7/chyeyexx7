@@ -8,5 +8,3 @@
 chyeyexx7/chyeyexx7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-
-https://ubarcelona-my.sharepoint.com/:x:/g/personal/epuertas_ub_edu/EaMvDrKjeIJDhfRPLEYHZAUBhHdi6tkJBI-FDffXgIhldw?email=chyeyexx7%40alumnes.ub.edu&e=4%3aYKJ6TI&at=9
